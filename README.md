@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Tekno-Mamiomaro
+- 👀 I’m interested in ...java,html ve php 
+- 🌱 I’m currently learning html ve java
+- 💞️ I’m looking to collaborate  hiçbir konu 
